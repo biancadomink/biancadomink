@@ -1,0 +1,6 @@
+- oi meu nome é bianca
+- estou no 1 ano do ensino medio
+- fiz cursos de it e assistente pessoal
+- gosto de ler e shows
+- sou legal (particulamente)
+- 
